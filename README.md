@@ -1,1 +1,2 @@
-# sadiq_group
+# Sadiq Group
+Sadiq Group of Companies is a thriving business Corporation working in the realm of Telecommunications, Construction, Power, Hotels & Resorts, Electronics, Fashion, Rentals, Services, and Trading. The company was founded back into 2016 whereby the acclamation led to further development of business namely Apple Hub Electronics Trading LLC, Sadiq Super Store, Pooja’s Fashion, Sadiq Resort, and Al-Kausar Communications in GCC, Europe and all over Asia. The successful business of the Sadiq group has a motto of creating extraordinary experiences and bringing quality to lifestyle by blending comfort with style.
